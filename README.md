@@ -1,4 +1,4 @@
-Canada IT Club
+Canada IT Club 🇨🇦
 
 Canada IT Club is a dynamic community that brings together IT professionals from across Canada, fostering collaboration, knowledge sharing, and career growth. With a mission to connect, empower, and inspire IT talent, Canada IT Club serves as a hub for networking, learning, and exploring new opportunities in the ever-evolving world of technology.
 
